@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on instagram :-spro_45
 - 📫 How to reach me phone no:6305413688
 - 😄 Pronouns: love to work
-- ⚡ Fun fact: ...
 
 <!---
 bayyasrinivas/bayyasrinivas is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
